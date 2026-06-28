@@ -1,4 +1,4 @@
-# 
+# Inteligente DisplayFusion predefinições para Mac OS | Seguro DisplayFusion predefinições para PC Windows. Com desfragmentacao de disco e aceleracao de hardware — otimizado para máximo desempenho em cada plataforma.
 
 
 
